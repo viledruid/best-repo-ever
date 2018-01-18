@@ -1,3 +1,3 @@
 # best-repo-ever
-I love chicken, pork, and lamb. Meowmix meowmix please deliver. 
-Meow Meow Meow Mewo
+Pork Beef Liver
+Simplicity is our game
